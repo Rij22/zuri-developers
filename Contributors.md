@@ -19,3 +19,17 @@
   - Ayo Mark
   - Charles Obimnaeto Egesionu
   - Omojole Aishat Eniola
+  - ADEWOPO Glory Samson
+  - Segun Okedele
+  - Oluwatuyi Abiola
+  - Doyin Oyadiji
+  - Chiamaka Miriam
+  - Aguguo Prince Chigozie
+  - Godstime Nwabue
+  - Omosaye Moses Iseoluwa
+  - Olateju Ibukunoluwa
+  - Tega Lucky-Fiakpa
+  - BABATUNDE Naheemot Atinuke
+  - Iniobong Effiong
+    -Kingsley Matthew
+ -  Siyanbola Ajibola Kolade
